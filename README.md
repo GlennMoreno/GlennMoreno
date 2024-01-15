@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GlennMoreno
+- 👀 I’m interested in guitar
+- 🌱 I’m currently learning many lang
+- 😄 Pronouns: she/he/him/her
+- ⚡ Fun fact: i love gym
